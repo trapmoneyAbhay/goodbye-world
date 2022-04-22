@@ -1,2 +1,1 @@
-# goodbye-world
-4/21/22 -> we lit
+I love listening to Lil Uzi Vert
